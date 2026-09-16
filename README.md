@@ -1,1 +1,1 @@
-Joined GitHub on February 14, 2025
+20, Tech Enthusiast 
